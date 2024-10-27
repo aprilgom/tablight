@@ -16,7 +16,7 @@ https://www.youtube.com/watch?v=PccI_pUTZXs&ab_channel=Pocket-lint
 
 https://www.youtube.com/watch?v=revatKHflr0&ab_channel=DemoMissionMan
 
-상당히 간지나지만, 이것만 보고 TV를 새로사기엔 좀 아까우니 자작하는 사람도 그럭저럭 있었습니다.
+이것만 보고 TV를 새로사기엔 좀 아까우니 자작하는 사람도 그럭저럭 있었습니다.
 
 https://www.youtube.com/watch?v=yFF8vqlZofE&ab_channel=%EC%98%A4%EB%82%A0%EB%8F%84%EC%9D%98%EC%8A%A4%EB%A7%88%ED%8A%B8%ED%99%88%EB%A7%8C%EB%93%A4%EA%B8%B0
 
